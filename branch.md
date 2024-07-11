@@ -1,0 +1,1 @@
+as peças aos poucos está se encaixando, colocando as coisas na pratica fica realmente mais divertido e nao maçante
